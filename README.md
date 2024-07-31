@@ -1,1 +1,1 @@
-# ikyy96.github.io.
+# ikyy96.github.io
